@@ -1,2 +1,0 @@
-# sincronizado
-# sincronizado
